@@ -1,4 +1,4 @@
-![stumble-guys-multiplayer-royale-1](https://github.com/user-attachments/assets/6c85977d-248e-451c-be44-fe1490e1ec79)# Stumble Guys Mod APK: Game Battle Royale Penuh Kesenangan
+# Stumble Guys Mod APK: Game Battle Royale Penuh Kesenangan
 
 # Unduh Sekarang: [Stumble Guys Mod APK](https://tinyurl.com/yns6n4hb)
 
